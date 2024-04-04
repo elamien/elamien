@@ -1,1 +1,1 @@
-I like deep neural nets.
+I like to build full-stack software.
