@@ -1,1 +1,1 @@
-I like to build full-stack software.
+To be honest, i do not know what i am doing. 
