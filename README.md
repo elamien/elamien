@@ -1,1 +1,1 @@
-Avid arch user wannabe
+Arch user wannabe
